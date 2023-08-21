@@ -1,17 +1,9 @@
 - 👋 Hi, I’m @technoshaman001
 - 👀 I’m interested in Biometric Data focusing on EEG and sharing my datasets for free...
+- 
+ I am J. R. Damon
 
-- 					jayelynn damon technoshaman001 - 2022
-
-	
-	
-	
-	
-
-
- I am J Damon
-
- I was born in 1993, and from a young age, I have always felt a deep connection to the earth and the natural world. I have a Nostalgic for Paleolithic, and I often find myself yearning for the simplicity of those times. As a Taurus and a shapeshifter, I have a strong connection to the earth and the cycles of the natural world. Dogs have always held a special place in my heart, and I have always found comfort in their companionship.
+ I was born in 1993, and from a young age, I have always felt a deep connection to the earth and the spiritual dimension. I have a Nostalgic for Paleolithic. I'm a Taurus and a shapeshifter, I have a strong connection to the earth and the cycles of the natural world. Dogs have always held a special place in my heart, and I have always found comfort in their companionship.
 
 In addition to my love of nature, I have always had a fascination with technology. I am particularly interested in virtual reality, EEG technology, and 3D printing. My work in the field of IT allows me to explore these interests in a professional setting, and I am constantly amazed by the advancements in technology.
 
